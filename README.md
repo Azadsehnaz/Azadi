@@ -1,0 +1,2 @@
+# Azadi
+Mavi tik
